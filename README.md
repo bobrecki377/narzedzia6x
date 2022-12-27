@@ -1,0 +1,1 @@
+# narzedzia6x
